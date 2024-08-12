@@ -14,7 +14,7 @@ OuO机场，高效稳定的SD-WAN线路，安全的hadowsocks Hash加密协议 �
 
 全体成员预祝您新年快乐，万事顺意！
 
-七折优惠码：HAPPYNEWYEAR1111111111111
+七折优惠码：HAPPYNEWYEAR11111111111111
 
 ## OuO机场价格
 
